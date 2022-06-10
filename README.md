@@ -2,7 +2,7 @@
 
 
 
-Olá mundo! Bem ao meu livro delicioso de receitas!
+Olá mundo! Bem ao meu livro de experimentos insólitos!:
 
 
     Meninas Superpoderosas;
